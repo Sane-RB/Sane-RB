@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on programming
 - 📫 How to reach me sanebvillain@gmail.com
 - 😄 Pronouns:He/Him
-- ⚡ Fun fact: I am the smartest nigga/man in the universe
+- ⚡ Fun fact: She's a brickHOUSE
 
 <!---
 Sane-RB/Sane-RB is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
