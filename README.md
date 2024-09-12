@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sane-RB
-- 👀 I’m interested in Making/Pimpin the game(universe)
+- 👀 I’m interested in the Universe
 - 🌱 I’m currently learning encryption
 - 💞️ I’m looking to collaborate on programming
 - 📫 How to reach me sanebvillain@gmail.com
