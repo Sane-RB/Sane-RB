@@ -2,7 +2,7 @@
 - 👀 I’m interested in the Universe
 - 🌱 I’m currently learning encryption
 - 💞️ I’m looking to collaborate on programming
-- 📫 How to reach me sanebvillain@gmail.com
+- 📫 How to reach me 303-868-2737
 - 😄 Pronouns:He/Him
 - ⚡ Fun fact: She's a brickHOUSE
 
