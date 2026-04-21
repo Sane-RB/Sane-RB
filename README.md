@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @Sane-RB
-- 👀 I’m interested in the Universe
-- 🌱 I’m currently learning encryption
+- 👀 I’m interested in quantum computing
+- 🌱 I’m currently learning worldbuilding
 - 💞️ I’m looking to collaborate on programming
-- 📫 How to reach me (480)788-0586, R.B._Sane@SaneSay.com
+- 📫 How to reach me (303)868-2737, R.B._Sane@SaneSay.com
 - 😄 Pronouns:He/Him
-- ⚡ Fun fact: I speak blanguages
+- ⚡ Fun fact: I speak programming languages.
 - Domain: www.SaneSay.com
 
 <!---
